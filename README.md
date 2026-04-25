@@ -55,9 +55,9 @@ I'm exploring the intersection of AI and product-building: how to go from an ide
 
 | Platform | Link |
 |----------|------|
-| 📧 Email | *(add your email here)* |
-| 💼 LinkedIn | *(add your LinkedIn URL)* |
-| 📸 Instagram | *(add your Instagram handle)* — *where I post about the Top 1% mindset & self-improvement* |
+| 📧 Email | *ghaniahmad1224@gmial.com* |
+| 💼 LinkedIn | *www.linkedin.com/in/ahmad-ghani-7059a535a* |
+| 📸 Instagram | *[(add your Instagram handle)](https://www.instagram.com/shahicron/)* — *where I post about the Top 1% mindset & self-improvement* |
 
 ---
 
