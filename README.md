@@ -57,7 +57,7 @@ I'm exploring the intersection of AI and product-building: how to go from an ide
 |----------|------|
 | 📧 Email | *ghaniahmad1224@gmial.com* |
 | 💼 LinkedIn | *www.linkedin.com/in/ahmad-ghani-7059a535a* |
-| 📸 Instagram | *(https://www.instagram.com/shahicron/)* — *where I post about the Top 1% mindset & self-improvement* |
+| 📸 Instagram | *https://www.instagram.com/shahicron/* — *where I post about the Top 1% mindset & self-improvement* |
 
 ---
 
